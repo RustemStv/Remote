@@ -109,3 +109,4 @@ ffjkdfjkdjdkjfkdfjkdfjdkjf
 ffjfjdjdjdj
 
 ghfhdjfhdjfhdjfhdjfhd
+сделал упражнения по дз
